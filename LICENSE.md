@@ -1,4 +1,4 @@
-# 
+# Ligero Kaspersky Total Security complementos para Mac OS | Gratuito Kaspersky Total Security complementos para PC Windows. Con protección contra fugas de DNS y acceso de emergencia — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
